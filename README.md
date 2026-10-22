@@ -47,7 +47,6 @@ I believe good B2B sales is not about pushing a product. It is about listening, 
 **Tools**
 `CRM` · `LinkedIn Sales Navigator` · `Excel / Google Sheets` · `Email Automation`
 
-> Edit this list to keep only the skills and tools you have actually used.
 
 ---
 
