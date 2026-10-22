@@ -4,7 +4,6 @@
 
 ### B2B Sales Professional · Lead Generation · Client Relationship Management · Business Development
 
-📍 Delhi, India
 
 <br/>
 
@@ -64,7 +63,6 @@ If you are looking for someone who can bring energy, persistence and a client-fi
 
 - 💼 LinkedIn: [linkedin.com/in/nargish-khatoon](https://www.linkedin.com/in/nargish-khatoon)
 - 📧 Email: [nargishfatma976@gmail.com](mailto:nargishfatma976@gmail.com)
-- 📍 Location: Delhi, India
 
 <div align="center">
 
